@@ -1,1 +1,0 @@
-# 12cd1tz_AcsNorbert
